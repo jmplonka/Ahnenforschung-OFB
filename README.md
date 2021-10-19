@@ -6,4 +6,4 @@ Momentan sind für die Orte
   * Fröllersdorf (Jevišovka)
   * Neuprerau (Nový Přerov)
   
- im Kreis Břeclav Taufen, Hochzeiten und Sterbeeinträge für den Zeitraum (1686 bis 1733) enthalten.
+ im Kreis Břeclav Taufen, Hochzeiten und Sterbeeinträge für den Zeitraum (1686 bis 1784) enthalten. Danach existieren Index-Register, die einem bei der Suche helfen.
