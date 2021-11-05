@@ -8,4 +8,5 @@ Momentan sind für die Orte
   * Bischofwart (Hlohovec)
   * Oberthemenau (Charvátská Nová Ves)
   * Unterthemenau (Poštorná)
+ 
  im Kreis Břeclav Taufen, Hochzeiten und Sterbeeinträge für den Zeitraum (1686 bis 1784) enthalten. Danach existieren Index-Register, die einem bei der Suche helfen.
